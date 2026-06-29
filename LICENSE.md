@@ -1,4 +1,4 @@
-# 
+# خفيف degen coin sniper bot أدوات لـ Mac OS | مخصص degen coin sniper bot أدوات لـ PC Windows. مع زمن استجابة منخفض و اكتشاف السحب — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
